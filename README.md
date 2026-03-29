@@ -48,7 +48,7 @@ Drafted professional emails and created a checklist for responsible social media
 
 ### 🔹 Task 5: Cybercrime Awareness
 
-Studied UPI fraud and created a case study along with prevention tips.
+Studied Cyberbulling and created a case study along with prevention tips.
 
 ---
 
